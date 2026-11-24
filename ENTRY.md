@@ -1,1 +1,1 @@
-Our standup is 15 minutes long and 45 minutes late, which is the most accurate project estimate this company has ever produced.
+We scheduled a meeting to plan the meeting about the meeting. It ran over, so we booked a follow-up to discuss why the planning meeting failed.
