@@ -1,0 +1,1 @@
+Our standup is 15 minutes long and 45 minutes late, which is the most accurate project estimate this company has ever produced.
